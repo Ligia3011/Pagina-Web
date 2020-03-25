@@ -24,8 +24,3 @@ Este personaje de la mitología romana –conocido como Pan en la griega– es u
 
 7. Minotauro
 Por último, en esta lista encontramos a un ser formado por el cuerpo de un hombre y la cabeza de un toro, que fue encerrado en un laberinto de la isla de Creta y recibía siete hombres y siete mujeres como  alimento cada año. Teseo fue el encargado de ingresar en el lugar y aniquilar a la bestia tras una ardua pelea.
-
-# Ninfas
-En la mitología griega, una ninfa (en griego antiguo, νύμφα) es una deidad menor femenina típicamente asociada a un lugar natural concreto, como puede ser un manantial, un arroyo, un monte, un mar o una arboleda.
-
-Se les aplicaba el título de olímpicas, y se decía que eran convocadas a las reuniones de los dioses en el Olimpo y que eran hijas de Zeus. Diferentes de los dioses, las ninfas suelen considerarse espíritus divinos que animan la naturaleza, se representan en obras de arte como hermosas doncellas desnudas o semidesnudas, que aman, cantan y bailan. Poetas posteriores las describen a veces con cabellos del color del mar. Se creía que moraban en los árboles, en las cimas de montañas, en ríos, arroyos, cañadas y grutas. Según el lugar que habiten se las llama Nereidas (Νηρείδες), Oréades (Ὀρειάς) y Náyades (νηϊάδες). Aunque nunca envejecen ni mueren por enfermedad, y pueden engendrar de los dioses hijos completamente inmortales, ellas mismas no son necesariamente inmortales, pudiendo morir de distintas formas, aunque para Homero todas las ninfas son inmortales (Iliada XVII 78) y como diosas se les hacían sacrificios (Odisea XVII 204).
