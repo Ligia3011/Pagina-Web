@@ -1,5 +1,5 @@
 # Pagina-Web
-ANIMALES MITOLOGICOS 
+# ANIMALES MITOLOGICOS 
 
 Estos seres, que están relacionados con la fauna, se encuentran en las leyendas de algunas culturas, y todos ellos gozan de poderes y cualidades que les diferencian del resto de especies estándar
 ¿Qué son los animales mitológicos?
